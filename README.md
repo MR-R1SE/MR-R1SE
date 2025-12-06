@@ -22,7 +22,8 @@
 
   <p align="center">
     🕭 interact with caution 🕭
-  
+    <p align="center">
+    ❄︎ do not cover ❄︎
   
   
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![e6a69350 (1)](https://github.com/user-attachments/assets/2463c363-1897-4931-ae6c-bc7c5744e2bc)
