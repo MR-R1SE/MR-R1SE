@@ -15,8 +15,7 @@
 &nbsp;
     <a href="https://rise-by-rise2ndvers.straw.page" target="_blank"><b>strawpage</b></a>⌟ 
      <p align="center">
-       <img width="18" height="18" alt="b9877adf" src="https://github.com/user-attachments/assets/af4b1764-0802-487b-8ae2-3bc651c51752" />
-cudds encouraged <img width="18" height="18" alt="b9877adf" src="https://github.com/user-attachments/assets/edc99aac-0266-42e5-99f9-0b502ac61ab5" />
+       𖹭 cudds encouraged 𖹭
 
   <p align="center">
     unless im already with my friends !!!
@@ -25,3 +24,8 @@ cudds encouraged <img width="18" height="18" alt="b9877adf" src="https://github.
       <img width="16" height="16" alt="a9f06214" src="https://github.com/user-attachments/assets/20dab5c8-952f-4c51-84fe-456dea01f992" />
 interact with caution <img width="16" height="16" alt="a9f06214" src="https://github.com/user-attachments/assets/20dab5c8-952f-4c51-84fe-456dea01f992" />
 <p align="center">
+  
+  
+  
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![e6a69350 (1)](https://github.com/user-attachments/assets/2463c363-1897-4931-ae6c-bc7c5744e2bc)
+
