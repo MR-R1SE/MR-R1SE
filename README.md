@@ -21,9 +21,7 @@
     unless im already with my friends !!!
 
   <p align="center">
-      <img width="16" height="16" alt="a9f06214" src="https://github.com/user-attachments/assets/20dab5c8-952f-4c51-84fe-456dea01f992" />
-interact with caution <img width="16" height="16" alt="a9f06214" src="https://github.com/user-attachments/assets/20dab5c8-952f-4c51-84fe-456dea01f992" />
-<p align="center">
+    🕭 interact with caution 🕭
   
   
   
