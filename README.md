@@ -15,7 +15,7 @@
 &nbsp;
     <a href="https://rise-by-rise2ndvers.straw.page" target="_blank"><b>strawpage</b></a>⌟ 
   <p align="center">
-       “𝘐 𝘸𝘢𝘭𝘬 𝘵𝘩𝘳𝘰𝘶𝘨𝘩 𝘦𝘢𝘤𝘩 𝘥𝘢𝘺 𝘱𝘰𝘭𝘪𝘴𝘩𝘪𝘯𝘨 𝘳𝘶𝘣𝘺 𝘵𝘦𝘢𝘳𝘴,
+       “𝘐 𝘸𝘢𝘭𝘬 𝘵𝘩𝘳𝘰𝘶𝘨𝘩 𝘦𝘢𝘤𝘩 𝘥𝘢𝘺 𝘱𝘰𝘭𝘪𝘴𝘩𝘪𝘯𝘨 𝘨𝘰𝘭𝘥𝘦𝘯 𝘵𝘦𝘢𝘳𝘴,
     <p align="center">
       𝘩𝘰𝘱𝘪𝘯𝘨 𝘵𝘩𝘦𝘺’𝘭𝘭 𝘨𝘭𝘰𝘸 𝘣𝘳𝘪𝘨𝘩𝘵 𝘦𝘯𝘰𝘶𝘨𝘩 𝘵𝘰 𝘳𝘦𝘢𝘤𝘩 𝘵𝘩𝘦 𝘰𝘯𝘦 𝘐 𝘴𝘵𝘪𝘭𝘭 𝘮𝘪𝘴𝘴."
        <p align="center">
